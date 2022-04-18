@@ -1,1 +1,0 @@
-![](04-Finance Project Solution.png)
